@@ -2,7 +2,7 @@
 - 👀 I’m interested in IP Ndtwork programing
 - 🌱 I’m currently learning SDWAN
 - 💞️ I’m looking to collaborate on Network instalatoin
-- 📫 How to reach me tesfayegetu1@gmail.com or 2519679852
+- 📫 How to reach me tesfayegetu1@gmail.com or 251910679852
 - 😄 Prono currently iam working in telecom campany
 - ⚡ Fun fact: ...
 
